@@ -1,0 +1,2 @@
+# sudo777
+FOR WORK
